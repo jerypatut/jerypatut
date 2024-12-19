@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [-](-)
 
-- ⚡ Fun fact **yah,,right**
+- ⚡ Fun fact **yhh,,,off course,because coding mkaing me fun for doing somethin**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
